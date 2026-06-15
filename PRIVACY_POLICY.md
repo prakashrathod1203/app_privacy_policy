@@ -96,5 +96,5 @@ You are advised to review this Privacy Policy periodically for any changes.
 ## 8. Contact Us
 
 If you have any questions about this Privacy Policy or wish to request data deletion, please contact us:
-- **By Email:** support@murlidairy.com
-- **By Phone:** +91 XXXXXXXXXX
+- **By Email:** prakashrathod1203@gmail.com
+- **By Phone:** +91 8140811313
